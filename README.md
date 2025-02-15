@@ -1,2 +1,2 @@
 # hit
-if your obsessed with your try this by hitting his/her head 
+If you're upset with your partner, try pounding their head. 
